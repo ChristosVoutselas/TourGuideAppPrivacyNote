@@ -1,0 +1,1 @@
+# TourGuideAppPrivacyNote
